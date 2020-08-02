@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Cenema
+
+2. Sports
+
+        i. Football ii. Cricket
